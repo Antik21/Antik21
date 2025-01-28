@@ -1,4 +1,4 @@
-# Hi there! 👋 I'm Anriglobalist 🌍
+# Hi there! 👋
 
 ### 👨‍💻 Android Developer with 10+ years of experience
 
